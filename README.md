@@ -1,0 +1,2 @@
+# nusaindo
+buat magang tok
